@@ -9,3 +9,6 @@ today i did [minecraft](https://studio.code.org/s/mc/lessons/1/levels/1) coding.
 
 # 8/22/23
 i did coding on [CodeHS](https://codehs.com/join_class/29EC0) today that's all :] 
+
+# 8/23/23
+same thing i did yesterday (https://codehs.com/join_class/29EC0)
