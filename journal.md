@@ -14,4 +14,4 @@ i did coding on [CodeHS](https://codehs.com/join_class/29EC0) today that's all :
 same thing i did yesterday on [CodeHS](https://codehs.com/join_class/29EC0)
 
 # 8/24/23
-did silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :] 
+did silly coding on [CodeHS](https://codehs.com/join_class/29EC0) 2.4 :] 
