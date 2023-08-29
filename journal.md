@@ -22,3 +22,7 @@ did silly coding on [CodeHS](https://codehs.com/join_class/29EC0) 2.5.5 :]
 # 8/28/23
 
 i did no coding today because i was sleepy sorry :[
+
+# 8/29/23
+did silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
+
