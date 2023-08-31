@@ -28,3 +28,6 @@ did silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
 
 # 8/30/23
 did silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
+
+# 8/31/23
+silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
