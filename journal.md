@@ -42,6 +42,6 @@ silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
 silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
 
 # 9/7/23
-silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
+silly coding on [CodeHS](https://codehs.com/join_class/29EC0) and [code combat](https://codecombat.com) :]
 
 
