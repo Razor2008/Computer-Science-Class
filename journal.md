@@ -58,3 +58,6 @@ silly coding on [code combat](https://codecombat.com) :]
 
 # 9/14/23
 silly coding on [hour of code](https://hourofcode.com/us) :]
+
+# 9/15/23
+silly coding on [hour of code](https://hourofcode.com/us) :]
