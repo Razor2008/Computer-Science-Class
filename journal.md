@@ -89,6 +89,10 @@ silly coding on [hour of code](https://hourofcode.com/us) :]
 # 9/28/23
 silly coding on [hour of code](https://hourofcode.com/us) :]
 
+# 10/2/23
+silly coding on [hour of code](https://hourofcode.com/us) :]
+
 # 10/3/23
 silly coding on [hour of code](https://hourofcode.com/us) :]
+
 
