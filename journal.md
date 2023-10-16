@@ -101,6 +101,9 @@ silly coding on [hour of code](https://hourofcode.com/us) :]
 # 10/5/23
 silly coding on [hour of code](https://hourofcode.com/us) :]
 
+# 10/16/23
+silly coding on [hour of code](https://hourofcode.com/us) :]
+
 # 10/12/23
 silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
 
