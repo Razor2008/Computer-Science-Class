@@ -109,3 +109,6 @@ silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
 
 # 10/13/23
 silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
+
+# 10/18/23
+silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
