@@ -134,3 +134,5 @@ silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
 # 10/30/23
 silly coding on [CodeHS](https://codehs.com/join_class/29EC0) :]
 
+# 11/1/23
+silly coding on [EarSketch](https://earsketch.gatech.edu/landing/#/learn) :]
