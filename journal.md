@@ -139,3 +139,6 @@ silly coding on [EarSketch](https://earsketch.gatech.edu/landing/#/learn) :]
 
 # 11/3/23
 silly coding on [EarSketch](https://earsketch.gatech.edu/landing/#/learn) :]
+
+# 11/8/23
+silly coding on [EarSketch](https://earsketch.gatech.edu/landing/#/learn) :]
