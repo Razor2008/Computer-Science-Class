@@ -199,3 +199,6 @@ silly coding on [CoderZ](https://play.gocoderz.com/dashboard/#/missions/a3ff9941
 
 # 1/25/24
 silly coding on [EarSketch](https://earsketch.gatech.edu/landing/#/) :] idk how code on this one but it seems fun
+
+# 1/26/24
+silly coding on [EarSketch](https://earsketch.gatech.edu/landing/#/) :]
