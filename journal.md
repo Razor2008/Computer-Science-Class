@@ -229,3 +229,6 @@ silly coding on [CoderZ](https://play.gocoderz.com/dashboard/#/missions/a3ff9941
 
 # 4/25/24
 did silly coding on [VEXcode VR](https://vr.vex.com/) :3 
+
+# 5/14/24
+did silly coding on [VEXcode VR](https://vr.vex.com/) :3 
